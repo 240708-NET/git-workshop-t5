@@ -8,7 +8,7 @@ Fiona, love's prize.
 
 
 
-
-
-
+Golden leaves now fall.
+Gentle breezes softly sigh.
+Winter’s near at hand.
 ## Goodbye world
