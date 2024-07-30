@@ -1,5 +1,5 @@
 Hello world
-Chocolate? I love Chocolate!,
+Here are my changes,
 In the warmth, they softly lie—
 Golden, crisp delight.
 Swamp green ogre roars,  
