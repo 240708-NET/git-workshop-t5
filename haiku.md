@@ -1,5 +1,5 @@
 Hello world
-Here are my changes,
+Earth's humble treasure,
 In the warmth, they softly lie—
 Golden, crisp delight.
 Swamp green ogre roars,  
