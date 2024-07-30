@@ -1,5 +1,5 @@
 Hello world
-Earth's humble treasure,
+Chocolate? I love Chocolate!,
 In the warmth, they softly lie—
 Golden, crisp delight.
 Swamp green ogre roars,  
